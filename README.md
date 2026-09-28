@@ -1,1 +1,1 @@
-QH Technology WiFi 
+QH VisionX Technology 
